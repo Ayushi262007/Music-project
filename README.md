@@ -5,3 +5,4 @@
 ![image alt](https://github.com/Ayushi262007/Music-project/blob/f809bdf759ea324bd9b8617146433ac5a55c2a77/Screenshot%202025-07-06%20145715.png)
 ![image alt](https://github.com/Ayushi262007/Music-project/blob/f618d0c01e04dca75d91b48d6d4890b38024afee/Screenshot%202025-07-06%20145917.png)
 ![image alt](https://github.com/Ayushi262007/Music-project/blob/ace5d9f8840a12179496ca7103ed96cfee747623/Screenshot%202025-07-06%20145942.png)
+![image alt](https://github.com/Ayushi262007/Music-project/blob/9b8b4d9b7dfc001d66a1c29eef9d3f273f70ec01/Screenshot%202025-07-06%20150036.png)
